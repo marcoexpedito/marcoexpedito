@@ -32,7 +32,6 @@ Estou aberto a oportunidades como **Front-End Developer** (Júnior ou Trainee) p
 ## 🤝 Vamos nos conectar?
 
 - 💼 [LinkedIn](https://www.linkedin.com/in/marcoexpedito/)
-- 🌐 Portfólio (em breve!)
 - 💌 marcogomes52@hotmail.com
 
 ---
